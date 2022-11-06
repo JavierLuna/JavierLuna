@@ -4,7 +4,7 @@ Hi! Welcome to my [Person User Manual](https://openpracticelibrary.com/practice/
 
 ## About me 🙋‍♂️
 
-I like to be called `Javi` ([pronuntiation](https://app2.nameshouts.com/names/public/pronounce-javi), `he/him/his`). You will see that I usually write `Javier`, my full name, but I don't like to be called that way.
+I like to be called `Javi` ([pronunciation](https://app2.nameshouts.com/names/public/pronounce-javi), `he/him/his`). You will see that I usually write `Javier`, my full name, but I don't like to be called that way.
 
 I speak 🇪🇸 and 🇬🇧 fluently (and I babble in 🇫🇷).
 
